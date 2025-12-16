@@ -1,3 +1,5 @@
+![](Photo_Portrait_Alice_Gontier_ROND_200px.png)
+
 # Alice GONTIER 
 LinkedIn
 
