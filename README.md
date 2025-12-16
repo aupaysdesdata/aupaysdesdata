@@ -1,4 +1,4 @@
-![](Photo_Portrait_Alice_Gontier_ROND_200px.png | width=100)
+![](https://github.com/aupaysdesdata/aupaysdesdata/blob/main/Photo_Portrait_Alice_Gontier_ROND_200px.png?raw=true | width=100)
 
 # Alice GONTIER 
 LinkedIn
